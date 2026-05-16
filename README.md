@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GASJ000318MDFRNSA2
+GASJ000318MDFRNSA2
